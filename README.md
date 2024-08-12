@@ -1,0 +1,1 @@
+# Enacted-Extraversion-as-a-Well-Being-Enhancing-Strategy-in-Everyday-Life
